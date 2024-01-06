@@ -1,1 +1,1 @@
-SIPengmas
+Sistem Pengabdian Masyarakat
